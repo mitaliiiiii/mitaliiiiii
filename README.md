@@ -28,5 +28,6 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=mitaliiiiii&icon=0&color=0)](https://visitcount.itsvg.in)
+[![An image of @mitaliiiiii's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/mitaliiiiii)](https://holopin.io/@mitaliiiiii)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
